@@ -1,7 +1,12 @@
+
+      
+      
+    
+</body>
 - 👋 Hi, I’m @On1sh
 - 👀 I’m interested in design, directing videos and music
-- 🌱 I’m currently learning css
-- 💞️ I’m looking to collaborate on video, design project
+- 🌱 I’m currently learning video graphy
+- 💞️ I’m looking to collaborate on video, design project and art projects
 - 📫 How to reach me on ig xxono_x
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im trying to start a brand for apparels
